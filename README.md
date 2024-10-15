@@ -1,0 +1,1 @@
+ - Hi! I'm Rain! I go by She/They, and am currently working on the 12076 Robotics Team!
